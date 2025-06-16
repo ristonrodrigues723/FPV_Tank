@@ -1,2 +1,2 @@
 
-date 16/6/25 - this will be a fvp tank but the cas will really look line a tank unlike others this is good looking and do more things unlike whats already available online
+date 16/6/25 - this will be a fvp tank but the cas will really look line a tank unlike others this is good looking and do more things unlike whats already available online, problem somcreating fpv tank with reListic turret rotation head rotation , video feed audi feed is complex as fittign it into custon chasis is dificult i was sefching for wiri g diagram tool hat has all coulnt dind a single one
